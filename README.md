@@ -8,7 +8,7 @@
 
 16yo ‎ ‎<img src="https://64.media.tumblr.com/7b00537f2da0076c92494e73dcb6d907/0a11a47c43145bbe-39/s75x75_c1/d19ebda80c9efcb2c52f3d3341b68c77afe4f433.gifv" width="15" height="12"/>‎ ‎‎ ‎‎Norwegian
 
-[strawpage](https://charlesleeray.straw.page/) [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
+[strawpage](https://charlesleeray.straw.page/)ㅤㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
 <div align="center">
 <img src="https://files.catbox.moe/wbbszl" width="350" height="50"/>
