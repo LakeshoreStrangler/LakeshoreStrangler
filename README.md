@@ -6,7 +6,7 @@
 
 ‎<img src="https://files.catbox.moe/9q13kh.webp" width="300" height="300"/>
 
-16ㅤㅤ<img src="https://64.media.tumblr.com/5bb319237023b8ae43729035aa4f402c/2a6ba979c585bbd6-49/s75x75_c1/af0e756490a05699cfb56421b9ca1cdfd20c0cf3.gifv" width="15" height="12"/>‎ㅤNorskㅤㅤ#1 charles lee ray fan
+16ㅤㅤ<img src="https://64.media.tumblr.com/848dd8f13be8ca4b03c45af8bff60193/5203c8a05f74308e-45/s75x75_c1/eacc46b200514db79838daba944aa75e558ecea8.gifv" width="15" height="12"/>‎ㅤNorskㅤㅤ#1 charles lee ray fan
 
 [strawpage](https://charlesleeray.straw.page/)ㅤㅤ[guns.lol](https://guns.lol/sloanrocks)ㅤㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
