@@ -4,7 +4,7 @@
 <img src="https://files.catbox.moe/o4bds7.png" width="15" height="15"/> 
 
 
-‎<img src="https://media1.tenor.com/m/hceHsDRJemkAAAAC/cho-hyun-ju-hyun-ju.gif" width="300" height="300"/>
+‎<img src="https://64.media.tumblr.com/90e66d49953c1ca25baa1cebaadb74be/47e643ada0a97cea-50/s540x810/8398b7a68addbdc9f8019b12af20413888f927a3.gifv" width="300" height="300"/>
 
 16yo ‎ ‎<img src="https://64.media.tumblr.com/7b00537f2da0076c92494e73dcb6d907/0a11a47c43145bbe-39/s75x75_c1/d19ebda80c9efcb2c52f3d3341b68c77afe4f433.gifv" width="15" height="12"/>‎ ‎‎ ‎‎Norwegian
 
