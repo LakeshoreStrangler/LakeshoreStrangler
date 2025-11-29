@@ -11,7 +11,7 @@
 [strawpage](https://charlesleeray.straw.page/) [guns.lol](https://guns.lol/sloanrocks)ㅤ[Ata](https://midnightmischief.atabook.org)
 </div>
 <div align="center">
-<img src="https://64.media.tumblr.com/c9c0d8d98a068ac05337b3a92e441fd6/a2b9a9b92798b874-a7/s640x960/60e0c229fd5466526c2d33486a318af2e165e819.gifv" width="350" height="50"/>
+<img src="https://files.catbox.moe/wbbszl" width="350" height="50"/>
 
 ‎ 
 
