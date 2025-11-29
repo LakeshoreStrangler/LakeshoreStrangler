@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=Hyun-ju120&color=dc143c&label=Guards+killed)
+![](https://komarev.com/ghpvc/?username=Hyun-ju120&color=dc143c&label=People+killed)
 
 <div align="center">
 <img src="https://files.catbox.moe/o4bds7.png" width="15" height="15"/> 
