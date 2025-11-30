@@ -1,7 +1,7 @@
 ![](https://komarev.com/ghpvc/?username=Hyun-ju120&color=dc143c&label=People+killed)
 
 <div align="center">
-<img src="https://files.catbox.moe/o4bds7.png" width="15" height="15"/> 
+<img src="" width="15" height="15"/> 
 
 
 ‎<img src="https://files.catbox.moe/9q13kh.webp" width="300" height="300"/>
